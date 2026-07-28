@@ -1,2 +1,0 @@
-# JO_fire
-JOPORTIFOLIO
